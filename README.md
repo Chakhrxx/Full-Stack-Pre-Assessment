@@ -1,1 +1,0 @@
-# Full-Stack-Pre-Assessment
